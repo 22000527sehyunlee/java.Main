@@ -8,3 +8,4 @@ To spend more time in coding
 maybe it not could be a java only
 it could be easy or hard.
 it.... just... practice
+i missed some day/... let's begin again
